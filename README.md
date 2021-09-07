@@ -1,7 +1,7 @@
 ### Hi I'm Fadhiil 🐬
 
 Student at [SMK Wikrama Bogor](https://smkwikrama.sch.id/sejarah)\
-Follow my [LinkedIn](https://www.linkedin.com/in/fadhiil-abiyyi-tamsil-647768216/)
+[LinkedIn](https://www.linkedin.com/in/fadhiil-abiyyi-tamsil-647768216/)
 
 <p align="left">
 <a href="https://github.com/fadhiilabiyyi">
