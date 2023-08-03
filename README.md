@@ -1,6 +1,6 @@
 ### Hi I'm Fadhiil 🐬
 
-Student at [SMK Wikrama Bogor](https://smkwikrama.sch.id/sejarah)\
+Working as Backend Developer\
 [LinkedIn](https://www.linkedin.com/in/fadhiil-abiyyi-tamsil-647768216/)
 
 <p align="left">
